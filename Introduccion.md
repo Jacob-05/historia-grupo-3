@@ -1,3 +1,0 @@
-Las vacaciones de los Hernández comenzaron con risas y emoción mientras conducían hacia su destino soñado: una cabaña en las montañas, lejos del ruido de la ciudad. Todo parecía perfecto, el sol brillaba y el aire fresco llenaba sus pulmones. Sin embargo, una mala decisión en el camino los llevó a tomar un desvío equivocado. Cuando intentaron regresar, la carretera desapareció entre los árboles altos y frondosos.
-
-El bosque, que al principio parecía un hermoso paisaje de cuento, se volvió un laberinto sin salida. Las sombras de los árboles se alargaban con el atardecer, y la tranquilidad del lugar pronto se transformó en un inquietante silencio. Sin señal en sus teléfonos y con la noche acercándose, la familia se dio cuenta de que estaban completamente perdidos.
